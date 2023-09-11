@@ -1,0 +1,2 @@
+# Gizlilik-polit
+Gizlilik-polit
